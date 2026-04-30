@@ -1,4 +1,4 @@
-
+stealth Script for all star tower defense offers the most advanced all star tower defense Script, with unlimited stamina and auto-collect. Perfect
 
 
 
